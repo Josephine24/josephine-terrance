@@ -34,4 +34,4 @@
 ---
 
 ### 📫 Reach Me 
-- 🔗 [LinkedIn](https://linkedin.com/in/your-profile)  
+- 🔗 [LinkedIn](https://www.linkedin.com/in/josphine-terrance-25804b20a/) 
